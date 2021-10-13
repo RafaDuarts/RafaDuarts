@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Rafael Duarte
+- I like to program and discover new things.
